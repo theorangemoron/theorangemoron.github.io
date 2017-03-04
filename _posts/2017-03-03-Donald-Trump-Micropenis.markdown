@@ -5,8 +5,6 @@ date:   2017-03-03 17:46:32
 ---
 
 
-# New studies have found that president’s penis is officially a “micropenis”.  Constituents shocked.
-
 ![The president looking distraught after recent discovery](http://i.imgur.com/5UCqHPJ.jpg)
 
 ##Supports shocked as they discover new unsavory details of the leader of the free world.
