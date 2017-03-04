@@ -7,7 +7,7 @@ date:   2017-03-03 17:46:32
 
 ![The president looking distraught after recent discovery](http://i.imgur.com/5UCqHPJ.jpg)
 
-##Supports shocked as they discover new unsavory details of the leader of the free world.
+## Supports shocked as they discover new unsavory details of the leader of the free world.
 
 In a new study conducted by New York University, Dr. Ian Brady has determined that it is "at least 96%" likely that President Trump has what is officially called a "micropenis".
 
