@@ -17,6 +17,6 @@ To look into the matter further, the president has called upon the formation of 
 
 Reaction from the scientific community has been mixed.  “He’s a bafoon!” says Dr. Benjamin Nepoloni of the University of Arizonia.  “The 2nd Law of Thermodynamics is a basic construct of the universe.  It is not subject to the will of the government.”  However, Dr. Patrick Gertz of Liberty University states, “It is  about time that we have a president willing to challenge these fundamental laws.”
 
->This 2nd Law, not even the first by the way, was pushed by a congressman, Sadi Carnot, a long time ago.  It has nothing for the United States.  Removing it will be tremendous. - Trump
+>This 2nd Law, not even the first by the way, was pushed by a congressman, Sadi Carnot, a long time ago.  It has done nothing for the United States.  Removing it will be tremendous. - Trump
 
 Little is known about long term effects of the removal of the law, but the administration is extremely optimistic.
