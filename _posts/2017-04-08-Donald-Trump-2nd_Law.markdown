@@ -4,7 +4,6 @@ title:  "Trump asking congress to repeal the 2nd Law of Thermodynamics"
 date:   2017-04-08 17:46:32
 ---
 
-
 ![Trump identifies issues in current Thermodynamic Laws](http://i.imgur.com/mcX7oNw.jpg)
 
 ## 2nd Law of Thermodynamics continues to inhibit energy growth.
