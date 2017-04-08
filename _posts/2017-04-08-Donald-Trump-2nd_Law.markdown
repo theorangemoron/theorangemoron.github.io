@@ -4,6 +4,7 @@ title:  "Trump asking congress to repeal the 2nd Law of Thermodynamics"
 date:   2017-04-08 17:46:32
 ---
 
+# Trump pushing to repeal the 2nd Law of Thermodynamics
 
 ![Trump identifies issues in current Thermodynamic Laws](http://i.imgur.com/mcX7oNw.jpg)
 
