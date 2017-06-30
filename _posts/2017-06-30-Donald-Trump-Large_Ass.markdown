@@ -4,7 +4,7 @@ title:  "Trump has the biggest ass of any US President"
 date:   2017-06-30 12:46:32
 ---
 
-![Trump's Ass is the Biggest in US President History](http://imgur.com/SnFDPCy)
+![Trump's Ass is the Biggest in US President History](http://imgur.com/SnFDPCy.jpg)
 
 ## Trump's ass can barely make it through the door of Marine 1.
 
