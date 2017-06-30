@@ -4,9 +4,9 @@ title:  "Trump has the biggest ass of any US President"
 date:   2017-06-30 12:46:32
 ---
 
-![Trump's Ass is the Biggest in US President History](http://imgur.com/a/juSKp.jpg)
+![Trump's Ass is the Biggest in US President History](http://imgur.com/SnFDPCy)
 
-## Trumps' Ass can barely make it through the door of Marine 1.
+## Trump's ass can barely make it through the door of Marine 1.
 
 It is official that Donald Trump now has the largest ass of any president in US history.  Trump's read-end now measures a phenomenal 48 inches.  He is able to hide it much of the time by employing extremely well paid tailors to design his suits.
 
