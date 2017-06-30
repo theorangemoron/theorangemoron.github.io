@@ -16,7 +16,7 @@ The heaviest president in US history was William Howard Taft, who topped the sca
 
 “The president’s ass is not large at all,” says Press Secretary Sean Spicer.  “In fact, it is the smallest of any US president in the history of the office.  I have measured it myself, many times.  It is really tiny.  It sort of reminds me of a Barbie doll.”
 
-When questioned about is body-shape, Trump retorted, “ My ass is tremendous, I mean it is great, all right?  It is perfect, ok?  I have never exercised a day in my life, and my body is phenomenal.”
+When questioned about is body-shape, Trump retorted, “My ass is tremendous, I mean it is great, all right?  It is perfect, ok?  I have never exercised a day in my life, and my body is phenomenal.”
 
 >”I don’t really like to look at his body,” says first lady Melania Trump.  “It might be the biggest, no?, but I think President Coca’s was quite large too, no?”
 
